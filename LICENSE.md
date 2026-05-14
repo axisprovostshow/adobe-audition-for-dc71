@@ -1,4 +1,4 @@
-# 
+# Adobe Audition for macOS exclusive LUT: green-screen-removal & color-correction offers the most advanced Adobe Audition for macOS lut, with green-screen-removal and
 
 
 
